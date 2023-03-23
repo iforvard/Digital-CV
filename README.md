@@ -8,7 +8,7 @@
 
 +7 (952) 9343551
 
-keshsakura@gmail.com — предпочитаемый способ связи
+телеграм https://t.me/ipetrovv — предпочитаемый способ связи
 
 Другой сайт: http://github.com/iforvard
 
